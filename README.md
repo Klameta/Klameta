@@ -1,1 +1,1 @@
-ivanavalcheva@gmail.com / @klameta.something insta ✨
+ivanavalcheva@gmail.com ✨
