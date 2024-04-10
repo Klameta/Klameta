@@ -1,4 +1,4 @@
-<h1 align="center">Hi 👋! My name is Ivana and I'm .NET Core developer from Bulgaria</h1>
+<h1 align="center">Hi 👋! My name is Ivana and I'm a .NET Core developer from Bulgaria</h1>
 
 ###
 
